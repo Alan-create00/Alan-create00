@@ -5,6 +5,8 @@
 
 - Je me forme de façon autonome **sur les outils Power Apps et Dataiku DSS**
 
+- Je recherche une alternance en Data et IA pour améliorer mes compétences en les appliquant de façon plus pratique
+
 - 💬 N'hésitez pas à me contacter si vous voulez en savoir plus **alandenysekongolo@gmail.com**
 
 <h3 align="left">Echangeons:</h3>
